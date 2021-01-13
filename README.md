@@ -131,7 +131,7 @@ Black Africans in Hohenstaufen Iconography on JSTOR https://jstor.org/stable/767
 
 https://twitter.com/guest271314/status/1155520373565169666
 
-Charlotte of Mecklenburg-Strelitz - National Portrait Gallery https://npg.org.uk/collections/se
+Charlotte of Mecklenburg-Strelitz - National Portrait Gallery https://www.npg.org.uk/collections/search/portrait/mw01248/Charlotte-of-Mecklenburg-Strelitz
 
 
 <hr>
